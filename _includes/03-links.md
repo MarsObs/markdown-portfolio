@@ -1,1 +1,0 @@
-[Yahoo](http://yahoo.com)
